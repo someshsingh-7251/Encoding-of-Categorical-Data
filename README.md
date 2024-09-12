@@ -68,5 +68,6 @@ Feel free to contribute to this project by opening issues or submitting pull req
 
 This project is licensed under the MIT License.
 
-## Note
-Feel Free to Contact at Instagram: https://www.instagram.com/officialsomeshchinkusingh?igsh=MW1vdTZwbDdmMTZxbw==
+---
+
+*Note: Feel Free to Contact at Instagram: https://www.instagram.com/officialsomeshchinkusingh?igsh=MW1vdTZwbDdmMTZxbw==*
